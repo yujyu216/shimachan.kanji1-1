@@ -1,0 +1,1 @@
+# shimachan.kanji1-1
